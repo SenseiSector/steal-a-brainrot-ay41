@@ -1,4 +1,4 @@
-
+secret steal a brainrot Scripts offers the most advanced steal a brainrot Script, with auto-collect and teleport. Perfect for dominating any match.
 
 
 
